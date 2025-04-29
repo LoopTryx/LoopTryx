@@ -1,4 +1,4 @@
-Hey!! ****LoopTryx**** here, I'm a soon-to-be ***15 Year old*** Software Engineer.😁
+Hey!! ****LoopTryx**** here, I'm a ***15 Year old*** Software Engineer.😁
 
 -------------------------------------------------------------------------------------------------------------------------------------
 
